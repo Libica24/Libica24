@@ -4,7 +4,7 @@
 - 💞️ I’m looking forword for a job 
 - 📫 How to reach me email:libicavelusamy@gmail.com
 - 😄 be elated and make others elated
-- ⚡ learn more
+- ⚡ thoughts should be high
 
 <!---
 Libica24/Libica24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
